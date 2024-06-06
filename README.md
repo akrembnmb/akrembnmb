@@ -7,6 +7,6 @@
 
 🤖 As an AI enthusiast, I love working on projects that involve building intelligent systems and solving real-world problems using cutting-edge technologies.
 
-📫 Let's connect! You can find me on <a href="linkedin.com/in/akrem-benmbarek-58617a2a6/">LinkedIn</a> 
+📫 Let's connect! You can find me on <a href="https://www.linkedin.com/in/akrem-benmbarek-58617a2a6/">LinkedIn</a> 
 
 Keep exploring, learning, and building amazing things with AI! 🌟
